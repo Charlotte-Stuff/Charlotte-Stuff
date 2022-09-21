@@ -1,2 +1,1 @@
-- 👋 Hi, I’m Charlotte
-- 👗 My Pronouns Are She/Her
+
